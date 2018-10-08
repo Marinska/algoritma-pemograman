@@ -1,2 +1,2 @@
 # algoritma-pemograman
-read me gans
+read me gan jahahhaha
